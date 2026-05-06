@@ -47,7 +47,7 @@ Answer: I did what i can and asked the teacher for help
 
 **Share one fun fact about yourself:**
 
-Fun fact:  I play video games
+Fun fact:  I play video games.
 
 ---
 
